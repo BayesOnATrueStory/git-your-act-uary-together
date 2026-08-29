@@ -21,3 +21,6 @@ My name is Gregory
 Howdy, yall -Josh
 
 Karthik says it smells like updog in here
+Hotdog! Philo Bishay was here
+
+Pramod Misra went from splitting atoms to splitting exposures — signing in from Atlanta.
